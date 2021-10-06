@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @_arashsd
+- 👋 Hi, I’m @_arashzd
 
 <!-- Coming Soon -->
 - 👀 I’m interested in ...
